@@ -1,0 +1,1 @@
+Visit this site at https://Annihilator4423.github.io/MCStatus/
